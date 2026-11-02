@@ -1,0 +1,2 @@
+# zDemiroren_zsd_barter_bildirimi
+Barter Bildirimi
